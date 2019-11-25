@@ -12,6 +12,7 @@
 |6|右侧色标|红色热缩管3mmx10mm|1|
 |7|外壳护套|黑色四倍收缩加厚带胶热缩管 6mmx20mm|2|
 |8|耳机线|带麦|1|https://item.taobao.com/item.htm?id=529176391354 |
+|9|耳机套|comply audiopro smartcore 1对 |1|
 
 
 ## 工具
