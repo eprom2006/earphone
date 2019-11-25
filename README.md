@@ -22,6 +22,6 @@
 |2|斜口钳|不指定|剪线|https://detail.tmall.com/item.htm?id=574785632021
 |3|注射器|1ml|注胶|
 |4|鼠尾管||注胶|https://item.taobao.com/item.htm?id=39398324531
-|5|环割刀||外壳护套横向开剥|
+|5|环割刀||外壳护套横向开剥|https://detail.tmall.com/item.htm?id=575121437896
 |6|手术刀||外壳护套纵向开剥|
 |7|台钳||固定
