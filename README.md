@@ -11,7 +11,7 @@
 |5|左侧色标|蓝色热缩管3mmx10mm|1|
 |6|右侧色标|红色热缩管3mmx10mm|1|
 |7|外壳护套|黑色四倍收缩加厚带胶热缩管 6mmx20mm|2|
-|7|耳机线|带麦|1|https://item.taobao.com/item.htm?id=529176391354 |
+|8|耳机线|带麦|1|https://item.taobao.com/item.htm?id=529176391354 |
 
 
 ## 工具
