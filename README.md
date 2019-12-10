@@ -26,3 +26,11 @@
 |5|环割刀||外壳护套横向开剥|https://detail.tmall.com/item.htm?id=575121437896
 |6|手术刀||外壳护套纵向开剥|
 |7|台钳||固定
+
+## 安装教程
+
+耳机制作1
+https://v.youku.com/v_show/id_XMzYxNjcwNDU0OA
+
+耳机制作2
+https://v.youku.com/v_show/id_XMzYxNjc5NDkyOA
