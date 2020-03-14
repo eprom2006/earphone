@@ -21,6 +21,17 @@
 |@掌柜智昊|[智昊有间客栈](https://shop145677023.taobao.com)
 |@多马|[多马的玩具店](https://shop131226447.taobao.com)
 |@可丽耳音频|[可丽耳音频工作室](https://shop194727328.taobao.com)
+|@释小乖乖|[释小乖乖的耳机店](https://shop393745842.taobao.com/)
+|@伟宏_41221|[手作DIY耳机店](https://shop117403007.taobao.com)
+|@jiminxl|[jiminxl的杂货铺](https://shop193196635.taobao.com)
+|@zxylb|[Billy手作工坊](https://shop35928785.taobao.com/)
+|@卿如佛在|[一城霸开的手工店](https://yy678910.taobao.com/)
+|@烤熟了的鱼|[鱼音绕梁](https://shop145898200.taobao.com/)
+|@爱因斯丶蛋|[赵小双的杂货铺](https://lostdoll.taobao.com/)
+|@小麦稻稻|[小麦稻稻工作室](https://shop206139971.taobao.com/)
+|@减肥男孩成长记|[光线耳机](https://shop308988158.taobao.com/)
+|@WilliamLPeng|[WillP工作室](https://shop265770064.taobao.com/)
+
 
 
 如果你希望被列入这个名单，请在新浪微博联系 [@掌柜智昊](https://weibo.com/iyuanz)
